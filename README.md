@@ -31,8 +31,8 @@ src="https://i.pinimg.com/564x/23/58/72/235872f188ae3168baca39914c76b318.jpg"/>
 src="https://em.wattpad.com/23c18ee04afaa35516ae9a213f56b8dd2bc59766/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f4c33305339736d4f785f593245673d3d2d3736313233353835362e313562333632646665333065666432303630333732343138313237382e6a7067?s=fit&w=720&h=720jpg"/>
 <img
 src="https://i.pinimg.com/originals/dd/e1/37/dde137bbb159328ce9b8f402606f1261.jpg"/>
-src="https://66.media.tumblr.com/6c491e1ccc42b8e4e21b4e869ef92936/tumblr_ot59e3h0ta1ujecw5o1_400.jpg"/>
-src="https://pics.loveforquotes.com/when-you-see-wnen-vou-see-someone-holding-vour-favourite-26060287.png"/>
+src="https://pics.me.me/just-book-of-the-things-what-areyou-reading-jace-tnats-45267347.jpg"/>
+src=""/>
 src=""/>
 src=""/>i
 src=""/>
